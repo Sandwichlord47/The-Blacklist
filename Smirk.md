@@ -1,5 +1,5 @@
 <h1>Smirk/Smjrk/Mr. First Pick</h1>
-<p>This is a troubling individual who lives in the key west of florida and works for a general construction company for homes. He is abnormally attracted to children, mainly a child named Mimic/Mimjc. Caution is advised while being near him with your younger siblings. He is also known as a dirty fucking cheater after buying a lethal key for a week and rage cheating in ranked before the season ended. He is a Mimic clone and is script made. He often has beef with Mr. Last Alive.</p>
+<p>This is a troubling individual who lives in the key west of florida and works for a general construction company for homes. He is abnormally attracted to children, mainly a child named Mimic/Mimjc. Caution is advised while being near him with your younger siblings. He is also known as a dirty fucking cheater after buying a lethal key for a week and rage cheating in ranked before the season ended. He is a Mimic clone and is script made. He often has beef with Mr. Last Alive. Smirk also needs to be commanded every time to use his finka boosts. It almost seems like he likes being commanded.</p>
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1348120641404014654/image.png?ex=67ce4eaf&is=67ccfd2f&hm=724b275674b7b7e3f7410e5cd0467c18e15a92ae3a7a6fb9f17bac36ec585aee&">
 <br>
