@@ -10,3 +10,9 @@
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1304320053772025856/chopped.jpg?ex=67cdd2f5&is=67cc8175&hm=f384063b6aac325dd495c8cf543fc4cfc5947e60d7741a83e91d068bd61c5639&">
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1303457614788821012/IMG_8253.jpg?ex=67cdfb80&is=67ccaa00&hm=f0ce319ffd3486fa9473b0ae558494cebf476ea78879e21e52fe7a649f4e99c0&" style="width:300px;height:500px">
+<br>
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1302814505188851772/image.png?ex=67ce478f&is=67ccf60f&hm=567e4dfc02eb01aac5c09de20f2f283cde9e7ddad669a9f34e2ab983b6dbe6ea&">
+<br>
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1300582841330958346/image.png?ex=67ce1229&is=67ccc0a9&hm=f1e77b59f45052b34e22d52a8e535226eb3febd5d21d16ee23922ee002363383&">
+<br>
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1344511267573989477/HiviseandGarron-ezgif.com-video-to-gif-converter.gif?ex=67cdb372&is=67cc61f2&hm=950129220b42640f6b9880b5254a666d16e77dcbe100ac584fbc412cb9845af5&">
