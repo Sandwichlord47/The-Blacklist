@@ -1,4 +1,4 @@
-Case One: Smirk/Smjrk
+    Smirk/Smjrk
     This is a troubling individual who lives in the key west of florida and works for a general construction company for homes. He is abnormally attracted to children, mainly a child named Mimic/Mimjc. Caution is advised while being near him with your younger siblings. He is also known as a dirty fucking cheater after buying a lethal key for a week and rage cheating in ranked before the season ended. He is a Mimic clone and is script made.
     <br>
     <img src="https://cdn.discordapp.com/attachments/857843095298899981/1348120641404014654/image.png?ex=67ce4eaf&is=67ccfd2f&hm=724b275674b7b7e3f7410e5cd0467c18e15a92ae3a7a6fb9f17bac36ec585aee&">
@@ -11,10 +11,15 @@ Case One: Smirk/Smjrk
 <br>
 <img src="https://cdn.discordapp.com/attachments/1304193217268420610/1348155295498764350/IMG_2336.png?ex=67ce6ef5&is=67cd1d75&hm=879124fd256f2d93c084293ca815b21ad9e4fe96c4143fad72e5e0024f8af557&" style="width:300px;height:500px;">
 <br>
+
 <br>
+
 <br>
+
 <br>
+
 <br>
+
 <br>
+
 <br>
-Case Two: Hivise/Ximvise
