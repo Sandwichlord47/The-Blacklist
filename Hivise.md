@@ -6,3 +6,7 @@
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1327856763206238218/image.png?ex=67cdc1ba&is=67cc703a&hm=90d0a6b1477f775d50f08feb946f9c64d375cbc5e6bb47d8ccadfe197945083a&">
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1311158318797951017/image.png?ex=67cda717&is=67cc5597&hm=8e069f1bd3f705fd060c14e389a60d7d49528a0316508a26a85c1a9986cec28b&">
+<br>
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1304320053772025856/chopped.jpg?ex=67cdd2f5&is=67cc8175&hm=f384063b6aac325dd495c8cf543fc4cfc5947e60d7741a83e91d068bd61c5639&">
+<br>
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1303457614788821012/IMG_8253.jpg?ex=67cdfb80&is=67ccaa00&hm=f0ce319ffd3486fa9473b0ae558494cebf476ea78879e21e52fe7a649f4e99c0&" style="width:300px;height:500px">
