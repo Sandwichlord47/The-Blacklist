@@ -1,0 +1,2 @@
+<h1>Urabuse</h1>
+<p>Urabuse is a easily mental chalked little boy. A very simple example to prove this claim, is the moment when Urabuse threw his mouse at his wall and broke it due to dying in a custom match of Rainbow Six Siege. In addition to this, he is not good enough at the game to play it on an even playing field, so he decided to use a Xim. Not only that, he is too much of a coward to admit this, and stays "closeted"</p>
