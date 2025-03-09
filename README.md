@@ -7,4 +7,4 @@ Case One: Smirk/Smjrk
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1336994566124998728/image.png?ex=67ce0a78&is=67ccb8f8&hm=c2d8617f0de3d57e960f9f7256995a7afd371d0c239b92f9df35ce9e42e78180&">
 <br>
-<img src="https://cdn.discordapp.com/attachments/1304193217268420610/1348155223574577306/IMG_2110.png?ex=67ce6ee4&is=67cd1d64&hm=d41ef378485aff6585ed082ebd3bfefce0111159c3fb8ab5ce90d5e39e7300c9&">
+<img src="https://cdn.discordapp.com/attachments/1304193217268420610/1348155223574577306/IMG_2110.png?ex=67ce6ee4&is=67cd1d64&hm=d41ef378485aff6585ed082ebd3bfefce0111159c3fb8ab5ce90d5e39e7300c9&"style='width:300px;height:500px;">
