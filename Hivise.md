@@ -19,6 +19,6 @@ https://www.twitch.tv/hivise/clip/SquareThankfulFriesBatChest-BEBw-mWh1ar9DM3V
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1348181716547665960/image.png?ex=67ce8791&is=67cd3611&hm=33e657173fc84cfbf6b77fd5524cfbb05abf01fecb15ee3895917b79a1615e3a&">
 <br>
-<img src="https://cdn.discordapp.com/attachments/857843095298899981/1348182138435932211/image.png?ex=67ce87f5&is=67cd3675&hm=d7a80120420824ff32e7b627188b50e6684dc0b834610c668489b8b2491de3a4&">
+<img src="https://cdn.discordapp.com/attachments/857843095298899981/1348182138435932211/image.png?ex=67d27c75&is=67d12af5&hm=b62d4e3fdb0b459c7e3189e6a453bde90e8dfc2aafc00c18ed2cbb49a52b9c3f&">
 <br>
 <img src="https://cdn.discordapp.com/attachments/857843095298899981/1348182410700787804/image.png?ex=67ce8836&is=67cd36b6&hm=8cab97023179445d77655b50bae0271d15cd4c25dfc4452149473ed54eef2231&">
