@@ -1,0 +1,2 @@
+<h1>Elena</h1>
+<p>Elena is a short mexican woman who lives in California. She isn't really the brightest in the comm, but lets be honest, nobody doubts that. She is an extreme gooner who likes it when random men tell her when they are "cranking". She also likes to have knives moved across her body as the thrill of danger, gets her off. She tried to leave the comm to be a better person, but she was too weak to follow through. Once again, everybody expected that to happen anyways. She was just trying to get attention.</p>
